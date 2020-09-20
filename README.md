@@ -1,1 +1,1 @@
-# Rešio si zgonetku i nedobijaš ništ jer je ovo bio scam.
+# Rešio si zgonetku i nedobijaš ništa jer je ovo bio scam.
